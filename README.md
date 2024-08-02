@@ -1,0 +1,4 @@
+- 👋 Oie tudo bem? Meu nome é Lara Mellody tenho 15 anos e estou cursando o 1° ano do insino medio.
+- 👀 Meu maior interesse no momento é melhorar meus estudos cada vez mais
+- 💞️ E com o que for preciso eu estarei aqui para ajudar meus colegas de sala
+- 📫 Para chegar até mim pode entrar em contato com o meu email pessoal - mellodylara3@gmail.com
